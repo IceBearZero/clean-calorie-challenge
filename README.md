@@ -43,8 +43,8 @@ Raw foods only. This includes fresh vegetables, fruits and nuts. I'm sure I've l
 ### Raw means raw
 You can't cook these items. The *gray* area is olive oil and vinegars. If a nice healthy fresh guacomole sounds delightfully clean, raw and deliscious - **Do it**
  
- ## One cheat per day
- Yep - we are human, we make mistakes or have needs. You get one close a blind eye per day. There is, however, a catch to the cheat. The cheat can only be a single serving. In other words, that bag of chips you got, check the label and only eat the acceptable single serving.
+## One cheat per day
+Yep - we are human, we make mistakes or have needs. You get one close a blind eye per day. There is, however, a catch to the cheat. The cheat can only be a single serving. In other words, that bag of chips you got, check the label and only eat the acceptable single serving.
  
  This is mainly for those that need their morning coffee or they should not be let loose in public - but use it at your discretion.
  
