@@ -1,5 +1,5 @@
 # The Clean Calorie Challenge
-Lets group up and eat **Clean Calories** for short time period. See how we feel, recieve postive feedback from others doing it and walk away with a different perspective of how we choose and consume food!
+Lets group up and eat **Clean Calories** for short time period. See how we feel, receive postive feedback from others doing it and walk away with a different perspective of how we choose and consume food!
 
 # Why
 **Why not?** We eat deliscious foods every day, often times without thinking about their consequences. Why not make some conscious, well constrained choices for a short time to train ourselves into a different way to think about of food decisions?
